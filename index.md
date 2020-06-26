@@ -9,3 +9,5 @@ Bereits als Jugendlicher lernte Jagger Keith Richards kennen, der ebenfalls in D
 * Lied 4
 * Lied 5
 * Lied 6
+
+> Danke, dass Sie uns in Ruhe lassen, uns aber genügend Aufmerksamkeit schenken, um unser Ego zu stärken.
